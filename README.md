@@ -1,1 +1,0 @@
-# ds-6month-umit
